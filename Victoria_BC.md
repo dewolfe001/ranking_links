@@ -1,6 +1,6 @@
 Victoria Real Estate Links:
 Selling Guides for Real Estate  - https://bit.ly/3LxRqcg
-Selling Guide for people looking to sell Langford Real Estate - https://bit.ly/497k7Xn
+Selling Guide for people looking to sell Langford Real Estate - https://bit.ly/497k7Xn / https://dalesheppard.com/sellers/langford-home-selling-guide/
 Selling Guide for people looking to sell Saanich Real Estate - https://bit.ly/4nKvp7q
 Selling Guide for people looking to sell Victoria Real Estate - https://bit.ly/443gGNR
 Selling Guide for people looking to sell Saanich Peninsula Real Estate - https://bit.ly/4qPytlB
